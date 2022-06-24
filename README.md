@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently Studying in final year computer engineering
 
-- 📫 How to reach me khushboo.kanojiya088@gmail.com
+- 📫 How to reach me khushboo.kanojiya099@gmail.com
 
 
 <!---
